@@ -1,1 +1,1 @@
-shelter while selection separate more practical nice fully rule labor rising visit show has therefore
+doing longer sheep opportunity are compound smile all soil treated pretty wing language warn away
