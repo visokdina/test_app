@@ -1,1 +1,1 @@
-mile suggest truth steady valuable like monkey yellow slow anywhere room deep art population form
+glad riding education middle shout who remain ranch ill frighten order what rush article smile
