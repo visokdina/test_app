@@ -1,1 +1,1 @@
-dance dollar studied column husband structure measure available arrow solid become friendly atmosphere buy alone
+porch jump temperature melted ten broad apartment century shoe probably main potatoes telephone habit phrase
