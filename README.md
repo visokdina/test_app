@@ -1,1 +1,1 @@
-porch jump temperature melted ten broad apartment century shoe probably main potatoes telephone habit phrase
+me putting bell excellent driving average policeman writing roof automobile number sweet slightly science officer
