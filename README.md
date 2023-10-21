@@ -1,1 +1,1 @@
-settlers loose pull brave stepped paint range loud nine spent church even guide river be
+quickly merely favorite alone thou pick sugar lot belt suit average route physical hurried traffic
