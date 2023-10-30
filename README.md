@@ -1,1 +1,1 @@
-statement bean close straight curious tail enough unit twice syllable friend breathing torn race level
+stomach thought work stairs sight production giving buy slave opportunity shadow chose tales locate vowel
