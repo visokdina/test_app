@@ -1,1 +1,1 @@
-century hidden studying alphabet loose wooden blank sit there pale newspaper vowel exercise realize minerals
+gone art tie somebody fifteen finish its say parent fastened cheese led advice shelter accident
