@@ -1,1 +1,1 @@
-coat smaller spoken meet throat gain cloud leather ring problem paid dream race managed use
+wherever thread allow grow kids weather tried game baby say far hot army tongue bank
