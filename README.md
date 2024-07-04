@@ -1,1 +1,1 @@
-locate outline orbit zoo helpful railroad please slabs beautiful score average coat nearest belong action
+selection present serious willing card sport warm character door score guide represent married darkness widely
